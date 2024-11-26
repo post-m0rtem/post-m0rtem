@@ -1,6 +1,8 @@
 
 ![378bd595ccdc2ca804f79006e34f3728](https://i.postimg.cc/9MnMpnQg/image.png)
 
+![Visitor Count](https://profile-counter.glitch.me/{post-m0rtem}/count.svg) 
+
 ‧˚₊꒷꒦︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶꒷꒦︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶꒦꒷‧₊˚⊹\
 
 # Byi ;;  ![](https://64.media.tumblr.com/8e188c448ed3f1f16bbdcc5c3d6c9ca1/241e2519bcd92d50-d5/s75x75_c1/02326f56364e271d6473e22657279da30ff79503.gifv)
