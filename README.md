@@ -26,10 +26,12 @@
 
 # Interests ;; ![](https://64.media.tumblr.com/8613e1d9425d396a16442d8f8dfd8c31/241e2519bcd92d50-09/s75x75_c1/5926731c06e672e8c8a2e8bf828b8fb19c17f248.gifv)
 - **Unus Annus**
+- *Half Life*
 - *Markiplier*
 - Ultrakill
 - Gravity Falls
 - JJBA
 - Pressure
 - there's more but i'm too lazy atm.
-- Half Life
+
+  
